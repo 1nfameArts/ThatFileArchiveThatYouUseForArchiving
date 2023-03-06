@@ -1,3 +1,3 @@
 # whar
-Save Videos and Music for something.
+Save Videos and Music for susthing.
 Fast and easy!
