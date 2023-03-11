@@ -4,4 +4,4 @@ so just don't cancel me for downloading 100 gb worth of different game's OSTs, o
 
 
 
-*(AND DON'T JUDGE ME WHAT I UPLOAD)*
+*(AND DON'T JUDGE ME WHAT I UPLOAD PLEASE)*
